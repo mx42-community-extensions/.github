@@ -1,1 +1,1 @@
-Welcome to the Matrix42 Community Extensions Organisation
+Welcome to the Matrix42 Community Extensions Organization
